@@ -1,0 +1,1 @@
+Laboratoria Inżynieria Obrazów
